@@ -1,1 +1,2 @@
 Bankai
+Watch all episodes
